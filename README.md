@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in programming, developing, eating good food and learning.
 
-- 🌱 I’m currently learning Java Script, Python.
+- 🌱 I’m currently learning Java Script, NodeJS.
 
 - 💞️ I’m looking to collaborate on anything.
 
