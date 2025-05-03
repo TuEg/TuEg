@@ -6,4 +6,4 @@
 
 - 💞️ I’m looking to collaborate on anything.
 
-- 📫 How to reach me: @tuegkam on Instagram, Alina Kopylova on Facebook, @turquoise_eggplant on Telegram.
+- 📫 How to reach me: @tuegkam on Instagram, Alina Kopylova on Facebook.
